@@ -74,8 +74,8 @@ I'm currently focused on strengthening my software development foundations while
 
 ## 🤝 Connect with Me
 
-- Telegram: **[add your Telegram](https://t.me/YOUR_TELEGRAM_USERNAME)**
-- Email: **YOUR_EMAIL@example.com**
+- Telegram: **[@Illdomyself](https://t.me/Illdomyself)**
+- Email: **maksaurafarmer@gmail.com**
 
 ---
 
